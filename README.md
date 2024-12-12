@@ -17,4 +17,4 @@
 </a>
 
 # Selçuksports Canlı Maç izle - Selçuksports - SelçuksportsHD
-Selçuksports Canlı Maç izle. Futbol maçlarını yüksek kalitede donmadan kesintisiz canlı yayınla hd takip edim!
+Selcuksportshd Selçuksports Canlı Maç izle. Futbol maçlarını yüksek kalitede donmadan kesintisiz canlı yayınla hd takip edim!
